@@ -1,4 +1,4 @@
-(https://vk.com/serhiosanchezzz?z=photo446686743_456241968%2Falbum446686743_0%2Frev)
+![](https://sun9-28.userapi.com/impf/c846417/v846417569/2005d8/iEjPDxKZroM.jpg?size=465x809&quality=96&sign=10f3bfac6cc5c543435c69d91ac34c06&type=album)
 # **Бережной Сергей Александрович**
 31.08.1992
 ## _Опыт работы_ 1 год 7 месяцев ##
